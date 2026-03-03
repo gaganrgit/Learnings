@@ -1,1 +1,1 @@
-daily learnung longterm storage
+daily learning longterm storage
